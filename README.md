@@ -1,2 +1,2 @@
-# a-new-beginning
-fsdfwjfw
+# LAB_2 BD Maidannikov
+
